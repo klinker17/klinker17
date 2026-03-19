@@ -11,4 +11,4 @@
 ---
 
 - 💬 **Ask me about:** Risk Analysis, BI Strategy, or Six Sigma.
-- 📫 **How to reach me:** [Insert your LinkedIn or Email Link here]
+- 📫 **How to reach me:** www.linkedin.com/in/ericrobinsonco
